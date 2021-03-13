@@ -14,7 +14,7 @@ But would like to learn others after a few months..
 ## =======
 
 
- Reach me at my yadavabhinav11419821@gmail.com
+ Reach me at yadavabhinav11419821@gmail.com
 
 
 <!--
